@@ -5,5 +5,5 @@
 - 📫 How to reach me
 
 - 👨‍🎓 Linkedin : https://www.linkedin.com/in/meetghodasara/
--📸  Instagram : https://www.instagram.com/meet._ghodasara/
--Email: ghodasara.meet1@gmail.com
+- 📸  Instagram : https://www.instagram.com/meet._ghodasara/
+- 📧 Email: ghodasara.meet1@gmail.com
